@@ -1,6 +1,6 @@
 ### Hi! 👋
 
-I sell cheats for Valorant.
+I sell cheats for Valorant & WZ-MW 2.
 Join my discord server or visit the website.
 
 
