@@ -29,22 +29,33 @@ Join my discord server or visit the website.
 <!-- Apaixonado por tecnologia, educação e por mudar a vida das pessoas através da programação. -->
 
 
-### (Shorts):
-- [APEX LEGENDS | AIM + ESP + STREAM PROOF (4)](https://www.youtube.com/shorts/amNjx9Ndh78)<br/>
-- [APEX LEGENDS | AIM + ESP + STREAM PROOF (3)](https://www.youtube.com/shorts/UeFG_C0yTE0)<br/>
-- [APEX LEGENDS | AIM + ESP + STREAM PROOF (2)](https://www.youtube.com/shorts/Pjl3Zz8D734)<br/>
-- [APEX LEGENDS | AIM + ESP + STREAM PROOF (1)](https://www.youtube.com/shorts/lfQWZoIakOM)<br/>
+### (TikTok):
+Just a short demo video we have. 
+Join TikTok and see more.<br>
+> [APEX LEGENDS | AIM + ESP](https://www.tiktok.com/@ycheats/video/7195393395429248262)<br/>
+
+Just a short demo video we have. 
+Join TikTok and see more.<br>
+> [VALORANT | AIM + ESP + STREAM PROOF](https://www.tiktok.com/@ycheats/video/7192302972620295429)<br/>
+
+Just a short demo video we have. 
+Join Shorts and see more.<br>
+> [WZ-MW 2 | AIM + ESP + ESP ITEMS & MORE](https://www.tiktok.com/@ycheats/video/7190598247734463750)<br/>
+<br>
+<br>
 
 ### (Shorts):
-- [VALORANT | AIM + ESP + STREAM PROOF (6)](https://www.youtube.com/shorts/KEFgHfDFYCQ)<br/>
-- [VALORANT | AIM + ESP + STREAM PROOF (4)](https://www.youtube.com/shorts/s-ZJIBs2CdM)<br/>
-- [VALORANT | AIM + ESP + STREAM PROOF (3)](https://www.youtube.com/shorts/afzPOcQCoo4)<br/>
-- [VALORANT | AIM + ESP + STREAM PROOF (2)](https://www.youtube.com/shorts/7uzgXFeb36o)<br/>
-- [VALORANT | AIM + ESP + STREAM PROOF (1)](https://www.youtube.com/shorts/QE39_uBehoo)<br/>
+Just a short demo video we have. 
+Join Shorts and see more.<br>
+> [APEX LEGENDS | AIM + ESP](https://www.youtube.com/shorts/UeFG_C0yTE0)<br/>
 
+Just a short demo video we have. 
+Join Shorts and see more.<br>
+> [VALORANT | AIM + ESP](https://www.youtube.com/shorts/s-ZJIBs2CdM)<br/>
 
-### (Shorts):
-- [WZ-MW 2 | AIM + ESP + ESP ITEMS](https://www.youtube.com/shorts/cVbRCMWX3as)<br/>
+Just a short demo video we have. 
+Join Shorts and see more.<br>
+> [WZ-MW 2 | AIM + ESP + ESP ITEMS & MORE](https://www.youtube.com/shorts/cVbRCMWX3as)<br/>
 
 
 
