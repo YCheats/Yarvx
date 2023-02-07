@@ -30,6 +30,14 @@ Join my discord server or visit the website.
 
 
 ### (Shorts):
+- [APEX LEGENDS | AIM + ESP + STREAM PROOF (4)](https://www.youtube.com/shorts/amNjx9Ndh78)<br/>
+- [APEX LEGENDS | AIM + ESP + STREAM PROOF (3)](https://www.youtube.com/shorts/UeFG_C0yTE0)<br/>
+- [APEX LEGENDS | AIM + ESP + STREAM PROOF (2)](https://www.youtube.com/shorts/Pjl3Zz8D734)<br/>
+- [APEX LEGENDS | AIM + ESP + STREAM PROOF (1)](https://www.youtube.com/shorts/lfQWZoIakOM)<br/>
+
+### (Shorts):
+- [VALORANT | AIM + ESP + STREAM PROOF (6)](https://www.youtube.com/shorts/KEFgHfDFYCQ)<br/>
+- [VALORANT | AIM + ESP + STREAM PROOF (4)](https://www.youtube.com/shorts/s-ZJIBs2CdM)<br/>
 - [VALORANT | AIM + ESP + STREAM PROOF (3)](https://www.youtube.com/shorts/afzPOcQCoo4)<br/>
 - [VALORANT | AIM + ESP + STREAM PROOF (2)](https://www.youtube.com/shorts/7uzgXFeb36o)<br/>
 - [VALORANT | AIM + ESP + STREAM PROOF (1)](https://www.youtube.com/shorts/QE39_uBehoo)<br/>
