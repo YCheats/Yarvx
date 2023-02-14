@@ -31,11 +31,11 @@ Join my discord server or visit the website.
 
 ### (TikTok):
 Just a tiktok demo video we have. 
-Join tikTok and see more.<br>
+Join tiktok and see more.<br>
 > [APEX LEGENDS | AIM + ESP](https://www.tiktok.com/@ycheats/video/7195393395429248262)<br/>
 
 Just a tiktok demo video we have. 
-Join tikTok and see more.<br>
+Join tiktok and see more.<br>
 > [VALORANT | AIM + ESP + STREAM PROOF](https://www.tiktok.com/@ycheats/video/7192302972620295429)<br/>
 
 Just a tiktok demo video we have. 
