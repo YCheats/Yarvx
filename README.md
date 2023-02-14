@@ -30,16 +30,16 @@ Join my discord server or visit the website.
 
 
 ### (TikTok):
-Just a short demo video we have. 
-Join TikTok and see more.<br>
+Just a tiktok demo video we have. 
+Join tikTok and see more.<br>
 > [APEX LEGENDS | AIM + ESP](https://www.tiktok.com/@ycheats/video/7195393395429248262)<br/>
 
-Just a short demo video we have. 
-Join TikTok and see more.<br>
+Just a tiktok demo video we have. 
+Join tikTok and see more.<br>
 > [VALORANT | AIM + ESP + STREAM PROOF](https://www.tiktok.com/@ycheats/video/7192302972620295429)<br/>
 
-Just a short demo video we have. 
-Join Shorts and see more.<br>
+Just a tiktok demo video we have. 
+Join tiktok and see more.<br>
 > [WZ-MW 2 | AIM + ESP + ESP ITEMS & MORE](https://www.tiktok.com/@ycheats/video/7190598247734463750)<br/>
 <br>
 <br>
