@@ -2,15 +2,14 @@
 
 🎁 • Hello! 
 
-🎁 • I sell cheats for Pubg & Valorant.
+🎁 • I sell cheats for Pubg & Valorant + SPOOFER｜TPM-BYPASS
 
 🎁 • DiscordID: yarvx
 
 
 
 [![Web Site](https://img.shields.io/badge/website-000000?style=for-the-badge&logo=About.me&logoColor=white)](https://ycheats-inicio.glitch.me/)
-[![Discord](https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.com/invite/7SheNAt2H6)
-[![Youtube](https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@ycheats8155)
+[![Discord](https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.gg/s2b4rKayca)
 [![TikTok](https://img.shields.io/badge/TikTok-000000?style=for-the-badge&logo=tiktok&logoColor=white)](https://www.tiktok.com/@yarvx7) 
 <!-- [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](LINK_AQUI) -->
 <!-- [![Twitch](https://img.shields.io/badge/Twitch-9146FF?style=for-the-badge&logo=twitch&logoColor=white)](LINK_AQUI) -->
